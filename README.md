@@ -1,0 +1,3 @@
+# Baby_Ransomware
+
+ONLY FOR EDUCATIONAL PURPOSE 
